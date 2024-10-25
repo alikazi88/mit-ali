@@ -41,4 +41,4 @@ I wanted to do something different, something that shows a glimpse of my thought
 Thank you for being there, for understanding, for loving me the way you do. You are truly the most beautiful part of my life, inside and out. 
 
 With love,  
-**[Your Name]**
+**Ali**
